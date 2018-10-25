@@ -8,4 +8,7 @@
 - self motivation
 - passion
 - peace
+- life
+- is
+- cool
 
