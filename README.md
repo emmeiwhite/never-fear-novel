@@ -8,3 +8,6 @@
 - self motivation
 - passion
 - peace
+- disipline
+- courage
+- and yes COFFEE :)
