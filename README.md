@@ -8,3 +8,4 @@
 - self motivation
 - passion
 - peace
+- fear put people in the hospotal
