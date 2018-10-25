@@ -8,4 +8,5 @@
 - self motivation
 - passion
 - peace
+- Added this much stuff in emmei's branch
 
