@@ -8,8 +8,4 @@
 - self motivation
 - passion
 - peace
-- disipline
-- courage
-- Never be emotional
-- Obsessed without obtaining
-- and yes COFFEE :)
+
