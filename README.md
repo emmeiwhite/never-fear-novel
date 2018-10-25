@@ -2,8 +2,9 @@
  a novel about not to fear
 
 ## Success relies upon
--- faith
--- belief
--- self motivation
--- passion
--- peace
+
+- faith
+- belief
+- self motivation
+- passion
+- peace
